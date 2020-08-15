@@ -1,2 +1,4 @@
 # Contacto_Instructor_Team18_CCdCMx
-ygyg
+Gabriel Fuente:
+University of Tennessee
+Correo: gfuente@vols.utk.edu
